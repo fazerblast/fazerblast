@@ -10,6 +10,8 @@ __he/him__ only! no they/them or she/her!
 - also i have a boyfriend, don't flirt with me unless its in rp idrc
 
 - i can and will shittalk you if you host badly lmao... cry abt it
+
+
 ![us](https://cdn.discordapp.com/attachments/949482267821084812/955217238435168276/unknown.png)
 
 patreon with more info: https://www.patreon.com/cloudbay?fan_landing=true
