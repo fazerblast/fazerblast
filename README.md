@@ -11,6 +11,7 @@ __he/him__ only! no they/them or she/her!
 
 - i can and will shittalk you if you host badly lmao... cry abt it
 
+- dni freaks & danganronpa fans, i dont want anything 2 do with u ^u^
 
 ![us](https://cdn.discordapp.com/attachments/949482267821084812/955217238435168276/unknown.png)
 
