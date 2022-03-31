@@ -2,6 +2,8 @@
 __he/him__ only! no they/them or she/her! 
 
 ![scrunklies](https://cdn.discordapp.com/attachments/912288412873158659/958940444887244821/smallyass.PNG)
+(art by gigapuddih)
+
 
 - i get annoyed easily so if you do something like make a big deal out of being a double of me, or cover me, i'll hide you.
 
@@ -13,6 +15,6 @@ __he/him__ only! no they/them or she/her!
 
 - dni freaks & danganronpa fans, i dont want anything 2 do with u ^u^
 
-![yasss](https://64.media.tumblr.com/d91a3d48b9a2e51d7dd5bd943cbc16d2/14f019af67cfc68d-12/s250x400/996a6f0baa42684588ba902b11f2843753595d91.gifv)
+![yasss](https://cdn.discordapp.com/attachments/912288412873158659/955791943198195762/unknown.png)
 
 patreon with more info: https://www.patreon.com/cloudbay?fan_landing=true
