@@ -13,6 +13,6 @@ __he/him__ only! no they/them or she/her!
 
 - dni freaks & danganronpa fans, i dont want anything 2 do with u ^u^
 
-![yasss](https://64.media.tumblr.com/3fdee0868935de5e318fe2366a8c0b97/tumblr_ofohczmmuP1vitgceo1_1280.png)
+![yasss](https://64.media.tumblr.com/d91a3d48b9a2e51d7dd5bd943cbc16d2/14f019af67cfc68d-12/s250x400/996a6f0baa42684588ba902b11f2843753595d91.gifv)
 
 patreon with more info: https://www.patreon.com/cloudbay?fan_landing=true
