@@ -1,7 +1,7 @@
 ## 🍕 JEREMY !
 __he/him__ only! no they/them or she/her! 
 
-![scrunklies](https://cdn.discordapp.com/attachments/949482267821084812/955217282899013652/FOQdt8mVgAQq5K4.png)
+![scrunklies](https://64.media.tumblr.com/68bb179ee392926a38d4f76b10900c06/6841723dddc52a3b-82/s1280x1920/bee69aa460cb79cc1b3f02ef2b5f31b1a5543c61.pnj)
 
 - i get annoyed easily so if you do something like make a big deal out of being a double of me, or cover me, i'll hide you.
 
