@@ -1,9 +1,7 @@
 ## 🍕 JEREMY !
 __he/him__ only! no they/them or she/her! 
 
-![scrunklies](https://cdn.discordapp.com/attachments/912288412873158659/958940444887244821/smallyass.PNG)
-(art by gigapuddih)
-
+![yasss](https://cdn.discordapp.com/attachments/912288412873158659/955791943198195762/unknown.png)
 
 - i get annoyed easily so if you do something like make a big deal out of being a double of me, or cover me, i'll hide you.
 
@@ -15,6 +13,7 @@ __he/him__ only! no they/them or she/her!
 
 - dni freaks & danganronpa fans, i dont want anything 2 do with u ^u^
 
-![yasss](https://cdn.discordapp.com/attachments/912288412873158659/955791943198195762/unknown.png)
+![scrunklies](https://cdn.discordapp.com/attachments/912288412873158659/958940444887244821/smallyass.PNG)
+(art by gigapuddih)
 
 patreon with more info: https://www.patreon.com/cloudbay?fan_landing=true
