@@ -13,6 +13,8 @@ __he/him__ only! no they/them or she/her!
 
 - dni freaks & danganronpa fans, i dont want anything 2 do with u ^u^
 
+- istp 3w4 i am very silly
+
 ![scrunklies](https://cdn.discordapp.com/attachments/912288412873158659/958940444887244821/smallyass.PNG)
 (art by gigapuddih)
 
