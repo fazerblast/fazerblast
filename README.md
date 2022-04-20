@@ -20,12 +20,4 @@ __he/him__ only! no they/them or she/her!
 ![scrunklies](https://cdn.discordapp.com/attachments/912288412873158659/958940444887244821/smallyass.PNG)
 (art by gigapuddih)
 
-patreon with more info: https://www.patreon.com/cloudbay?fan_landing=true
-
-- hi! below is info on the system! read this if someone that isn't jeremy is fronting
-
-- we are an osdd traumagenic system! endos dni or else 
-
-- our dni is simple, don't interact if: dream fan, endo/non-traumagen "system", c!dream apologists
-
-- we use he/him system wide, and we are collectively nonhuman and trans!
+patreon with sys info: https://www.patreon.com/cloudbay?fan_landing=true
