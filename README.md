@@ -1,6 +1,5 @@
 ## BOTANIC ARSON SYSTEM !
 
-## BELOW IS HOST'S INFO (JEREMY) , SCROLL FOR SYSTEM INFO ! ##
 __he/him__ only! no they/them or she/her! 
 
 ![yasss](https://cdn.discordapp.com/attachments/912288412873158659/955791943198195762/unknown.png)
