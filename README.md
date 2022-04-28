@@ -14,5 +14,6 @@
 
 - i prefer tonetags but they aren't needed, just don't expect me to get you're joking when you say "kys" in a joking manner (which, i don't mind, but you NEED to specify if its a joke. unless you're a friend, then i will block you.)
 
+- also don't?? call me stupid or anything? it makes me hella mad and i'll probably dip on you. unless you use tonetags or are a friend then this doesn't apply to you, but fr tho why the FUCK would you call a stranger stupid as a joke, w/o tonetags.
 
 ![sheesh](https://pbs.twimg.com/media/Eco06m3X0AAUOcc.jpg:small)
