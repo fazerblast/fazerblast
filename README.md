@@ -4,7 +4,7 @@
 
 - hi. im jeremy! i also go by bosley/bossman, but i really don't mind which is used (i also don't mind doubles)
 
-- i dont really have a concrete dni, but if it counts; i hate dream fans, danganronpa fans and gross dsmp fans. (introjects of dream & danganronpa characters are fine. irls of dream dni.)
+- i dont really have a concrete dni, but if it counts; i hate dream fans, danganronpa fans and gross dsmp fans. gross dsmp fans as in sexualizing every single creator, and being hella sexist to the women on the smp.
 
 - i have a partner system; im usually on with them if im not at docks. ask before frq and don't add me to party unless i boop you for a game/rp.
 
