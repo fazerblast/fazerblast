@@ -10,6 +10,8 @@
 
 - hyperfixations; mlp, blueycapsules, fnaf, minecraft (NOT mcyt.), art
 
+- don't cover me, i don't have a tt/td or anything it's just i really hate when i cant see my character. also dont get too close bc thats the same thing and i'll move away. i also don't like the kissing emote UNLESS you crown/compliment me and I do the kiss emote first.
+
 - i use :3c as an emote very VERY often, if you think this is cringe you can suck my balls; but if it makes you uncomfortable (and we're in PARTY, or you're a FRIEND) ask me to stop using it and i will.
 
 - i prefer tonetags but they aren't needed, just don't expect me to get you're joking when you say "kys" in a joking manner (which, i don't mind, but you NEED to specify if its a joke. unless you're a friend, then i will block you.)
