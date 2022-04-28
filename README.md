@@ -13,3 +13,6 @@
 - i use :3c as an emote very VERY often, if you think this is cringe you can suck my balls; but if it makes you uncomfortable (and we're in PARTY, or you're a FRIEND) ask me to stop using it and i will.
 
 - i prefer tonetags but they aren't needed, just don't expect me to get you're joking when you say "kys" in a joking manner (which, i don't mind, but you NEED to specify if its a joke. unless you're a friend, then i will block you.)
+
+
+![sheesh](https://pbs.twimg.com/media/Eco06m3X0AAUOcc.jpg:small)
