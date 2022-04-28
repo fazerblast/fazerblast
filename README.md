@@ -1,4 +1,4 @@
-## BOTANIC ARSON SYSTEM !
+## DAVE / BOSLEY / JEREMY !
 
 __he/him__ only! no they/them or she/her! 
 
